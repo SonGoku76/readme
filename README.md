@@ -1,4 +1,6 @@
 Willkommen | 👋
 
-
-» https://github.com/sonGoku76
+  »Discord 
+  »Discord Java
+  
+»https://github.com/sonGoku76
